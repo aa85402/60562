@@ -19,4 +19,4 @@
 
 如果你想获得真正免费、高清、无广告的日本AV资源，这里将是你的理想目的地。收藏本站，每日更新不断片，看片不求人！
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/aa85402/60562 ）</span>
